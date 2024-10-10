@@ -1,4 +1,4 @@
-### Olá! Eu sou o Vicente de Paulo. ✌️<br/>
+### Olá! Eu chamo-me o Vicente de Paulo. ✌️<br/>
 Sou um jovem apaixonado pelo mundo da tecnologia, especialmente pelas áreas de programação e redes. Nos meus momentos livres, adoro praticar esportes radicais, <strong>como motocross.</strong><br/>
 
 
